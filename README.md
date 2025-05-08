@@ -12,7 +12,7 @@ welcome ,, ! DNI LIST !
 
 𝑫𝑵𝑰 𝑳𝑰𝑺𝑻 ( 𝑭𝑨𝑵𝑫𝑶𝑴𝑺 !! )
 
-. 。・゜✭・.・✫゜・。. helluva boss/hazbin hotel, homestuck, the sun and moon show, sprunki (dniuf!), cookie run kingdom, jjk fandom..nty, regretevator, dandys world (dniuid/do not interact unless i do.), any object show, steven universe (dniuf/dniuid), forsaken (dniuf/dniuid), alfreds playhouse, and gravity falls, dead plate, sonic the hedgehog, and tcoal or wtvr that is..
+. 。・゜✭・.・✫゜・。. helluva boss/hazbin hotel, homestuck, the sun and moon show, sprunki (dniuf!), cookie run kingdom, jjk fandom..nty, regretevator, dandys world (dniuid/do not interact unless i do.), any object show, steven universe (dniuf/dniuid), forsaken (dniuf/dniuid), alfreds playhouse, and gravity falls, dead plate, sonic the hedgehog, and tcoaal or wtvr that is..
 
 𝑫𝑵𝑰 𝑳𝑰𝑺𝑻 ( 𝑩𝑨𝑺𝑰𝑪 𝑫𝑵𝑰𝑺 !! )
 
