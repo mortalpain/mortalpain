@@ -30,3 +30,10 @@ sexualitys!!
 ![Tumblr_l_549380237089749](https://github.com/user-attachments/assets/88fa97b2-e137-438c-bd1a-0aeb7ca5b381)
 
 
+
+
+
+
+
+
+[afk/s-afk/offtab w2i] whispers: normalize saying "pxg me" to ur crush
