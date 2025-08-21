@@ -3,6 +3,8 @@
 
 ![white_flower__by_prussiaart_d9c9zfy-pre](https://github.com/user-attachments/assets/b66b4601-fd2f-4dbc-b390-dd5f7804b531)
 
+[sniffl] i love pp
+
 ₓ˚. ୭ ˚○◦˚.˚◦○˚ ୧ .˚
 
 welcome ,, ! DNI LIST !
@@ -35,3 +37,4 @@ welcome ,, ! DNI LIST !
 
 
 [afk/s-afk/offtab w2i] whispers: normalize saying "pxg me" to ur crush
+
