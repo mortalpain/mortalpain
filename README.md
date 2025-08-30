@@ -1,7 +1,4 @@
 
-![White_Flowers_Decorative_PNG_Clipart](https://github.com/user-attachments/assets/34e03407-0aae-47bd-9e7a-1b7d2eff8c21)
-
-![white_flower__by_prussiaart_d9c9zfy-pre](https://github.com/user-attachments/assets/b66b4601-fd2f-4dbc-b390-dd5f7804b531)
 
 [sniffl] i love pp
 
@@ -24,7 +21,6 @@ welcome ,, ! DNI LIST !
 ୨୧・・・・୨୧・・・・୨୧・・・・୨୧・・・・୨୧
 
 𝐓𝐇𝐈𝐒 𝐈𝐒 𝐓𝐇𝐄 𝐄𝐍𝐃 𝐓𝐇𝐀𝐍𝐊 𝐘𝐎𝐔 𝐅𝐎𝐑 𝐑𝐄𝐀𝐃𝐈𝐍𝐆, 𝐘𝐎𝐔 𝐌𝐀𝐘 𝐈𝐍𝐓 𝐎𝐑 𝐂+𝐇 𝐀𝐍𝐘𝐓𝐈𝐌𝐄 𝐔𝐍𝐋𝐄𝐒𝐒 𝐌𝐘 𝐍𝐀𝐌𝐄 𝐒𝐀𝐘𝐒 𝐎𝐓𝐇𝐄𝐑𝐖𝐈𝐒𝐄! 𝐑𝐄𝐌𝐈𝐍𝐃𝐄𝐑 𝐓𝐇𝐀𝐓 𝐘𝐎𝐔 𝐀𝐑𝐄 𝐋𝐎𝐕𝐄𝐃 𝐀𝐍𝐃 𝐘𝐎𝐔 𝐀𝐑𝐄 𝐖𝐀𝐍𝐓𝐄𝐃 !!𝟏!𝟏!𝟏
-![White_Flowers_Decorative_PNG_Clipart](https://github.com/user-attachments/assets/d621cf36-d757-471e-b65d-14d870dd55d1)
 
 
 
