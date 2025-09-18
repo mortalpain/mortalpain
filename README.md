@@ -34,4 +34,4 @@ welcome ,, ! DNI LIST !
 
 [afk/s-afk/offtab w2i] whispers: normalize saying "pxg me" to ur crush
 
-williams boy toy 🌹🍇 are u a williams boy toy 🌹🍇 sorry i had to clip ts
+williams boy toy 🌹🍇 are u a williams boy toy 🌹🍇 sorry i had to clip ts mad boy toy 🔥
