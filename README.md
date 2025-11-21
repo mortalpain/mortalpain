@@ -6,10 +6,8 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ocdm5ski3rvpdrdwkvserrx64y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a8dbe6&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ocdm5ski3rvpdrdwkvserrx64y&cover_image=true&theme=novatorem&show_offline=false&background_color=693dad&interchange=false&bar_color=693dad&bar_color_cover=false">
   </a>
 </p>
 
-![](https://komarev.com/ghpvc/?username=your-github-mortalpain&color=aeeeea) 
-
-<img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lifzHgx1v11djx_1280.gif" alt="stamp"/> <img src="https://y2k.neocities.org/stamps2/d17a97d41a692b4786f52d8b9a216ee8-da11kdh.png" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_pbbaqrNazy1xz2nuuo8_100.jpg" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/jvhjfkdjvhjuijfvi.png" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lnuG2781v11djx_1280.gif" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/44be1e0dbae5649ab22f2e23a400c100.png" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_pbbaqrNazy1xz2nuuo2_100.gif" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_pbl4whs7Xl1wlxvjlo7_100.gif" alt="stamp"/> <img src="https://y2k.neocities.org/stamps2/40_by_seweraat-dcm9lt8.png" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_oq44whEVTU1w09i2go9_100.png" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lntTGAF1v11djx_1280.gif" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lw1tkVl1v11djx_1280.gif" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lwkhWbL1v11djx_1280.gif" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_phusl1y0JK1xk82cxo9_100.gif" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/03_by_grassdemon-dbl9bkb.png" alt="stamp"/> <img src="https://y2k.neocities.org/stamps/tumblr_inline_oxvqwgdLQk1rv0j40_500.gif" alt="stamp"/>
+![](https://komarev.com/ghpvc/?username=your-github-mortalpain&color=693dad) 
