@@ -11,8 +11,8 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ocdm5ski3rvpdrdwkvserrx64y&cover_image=true&theme=novatorem&show_offline=false&background_color=744D6F&interchange=false&bar_color=744D6F&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ocdm5ski3rvpdrdwkvserrx64y&cover_image=true&theme=novatorem&show_offline=false&background_color=363336&interchange=false&bar_color=363336&bar_color_cover=false">
   </a>
 </p>
 
-![](https://komarev.com/ghpvc/?username=your-github-mortalpain&color=CD768C) 
+![](https://komarev.com/ghpvc/?username=your-github-mortalpain&color=6F3939) 
