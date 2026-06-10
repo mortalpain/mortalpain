@@ -1,4 +1,4 @@
-<p align=center> <img width="536" height="396" <img width="200" height="659" <img width="200" height="659"<img width="735" height="490" alt="Untitled125_20260610074456__fliter--red-sunset__channel--red__mode--color" src="https://github.com/user-attachments/assets/9b0d0053-667e-475d-86fd-d8844528ee59" />
+<p align=center> <img width="736" height="553 <img alt="Untitled125_20260610074456__fliter--red-sunset__channel--red__mode--color" src="https://github.com/user-attachments/assets/9b0d0053-667e-475d-86fd-d8844528ee59" />
 
 
   </p>
