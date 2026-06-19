@@ -1,4 +1,5 @@
-<p align=center> <img width="636" height="653 <img width="736" height="745" <img alt="Untitled137_20260617203357__fliter--teal-white__channel--red__mode--color" src="https://github.com/user-attachments/assets/10891b8d-8505-482f-ac18-f4c1695edd1c" />
+<p align=center> <img width="636" height="453 <img width="736" height="745" <img <img width="2048" height="1448" alt="Untitled138_20260619020455" src="https://github.com/user-attachments/assets/ec7cfea7-740a-44e4-afc5-2e90428fc5e7" />
+ 
 
 
 
@@ -14,8 +15,8 @@
 https://docs.google.com/document/d/1FSxE7aYoUyT2Nr-ohe65MqrY-opjL45kQ3P9Y4j6Q_E/edit?usp=sharing)
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ocdm5ski3rvpdrdwkvserrx64y&cover_image=true&theme=novatorem&show_offline=false&background_color=BBECFF&interchange=false&bar_color=BBECFF&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ocdm5ski3rvpdrdwkvserrx64y&cover_image=true&theme=novatorem&show_offline=false&background_color=FF0E3B&interchange=false&bar_color=FF0E3B&bar_color_cover=false">
   </a>
 </p>
 
-![](https://komarev.com/ghpvc/?username=your-github-mortalpain&color=AE80C7) 
+![](https://komarev.com/ghpvc/?username=your-github-mortalpain&color=FF0E3B) 
