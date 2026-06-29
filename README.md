@@ -1,4 +1,4 @@
-<p align=center> <img width="636" height="453 <img width="736" height="745" <img <img width="2048" height="1448" alt="Untitled138_20260619020455" src="https://github.com/user-attachments/assets/ec7cfea7-740a-44e4-afc5-2e90428fc5e7" />
+<p align=center> <img width="426" height="323 <<img width="500" height="281" alt="c37befb9ff9a68be28675e8f096f8b64" src="https://github.com/user-attachments/assets/24ae4d9a-727a-47ca-a69e-fb97806ee8ca" />
  
 
 
@@ -6,10 +6,12 @@
   </p>
 
 
+<p align=center> <img width="320" height="4" alt="tumblr_593ac8a5f24d777ca940d6c07f95d668_02009d6f_400" src="https://github.com/user-attachments/assets/6dfb598b-ad8a-48cf-860f-ae2237e54779" />
 
 
-<img src="https://64.media.tumblr.com/3e0d07d9f5ea87d765996cc83867f66c/03bcb8efb460d174-75/s640x960/0c7827e65985b57cf5a1559a63db1a60e90ae2a0.gifv" alt="div"/>
+<p align=center> <img width="200" height="53" alt="949wu9" src="https://github.com/user-attachments/assets/e7c9ebeb-fcbc-4165-aee5-88e2e87c5224" />
 
+<p align=center> <img width="320" height="4" alt="tumblr_593ac8a5f24d777ca940d6c07f95d668_02009d6f_400" src="https://github.com/user-attachments/assets/8f67b381-ca37-4c09-a28f-c071759cb7dd" />
 
 [straw](https://angelsweets.straw.page)                                      [prns](https://pronouns.cc/@mortalpain)       [ata](https://sparklybow.atabook.org/)        [READ THIS IF U READ MY PREVIOUS DOC.](
 https://docs.google.com/document/d/1FSxE7aYoUyT2Nr-ohe65MqrY-opjL45kQ3P9Y4j6Q_E/edit?usp=sharing)
